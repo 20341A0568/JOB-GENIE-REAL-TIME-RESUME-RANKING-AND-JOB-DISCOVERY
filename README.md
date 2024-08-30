@@ -1,1 +1,11 @@
 # RECRUITER-AI-AN-ADVANCED-REAL-TIME-JOB-RECOMMENDER
+![image](https://github.com/user-attachments/assets/cd2ee8d2-68a1-49ff-a61c-8c3a2390f650)
+![image](https://github.com/user-attachments/assets/19958afd-48e2-47ae-a5c1-c91f1ef165d2)
+![image](https://github.com/user-attachments/assets/85d26b39-424a-4f36-9efc-847ca13770aa)
+![image](https://github.com/user-attachments/assets/d8a4eddc-a587-46fc-b804-dea270cc0f8f)
+![image](https://github.com/user-attachments/assets/141d8fbb-afc6-48c3-b4a5-9d9932620d70)
+![image](https://github.com/user-attachments/assets/2aa2dbd9-c15c-49d7-a0a3-e3e71370c865)
+![image](https://github.com/user-attachments/assets/9495319d-27b6-4841-bd03-e969abf1e738)
+![image](https://github.com/user-attachments/assets/d82610a3-10b0-4c71-ae3e-a05fd3b194e3)
+![image](https://github.com/user-attachments/assets/b9691d82-4462-4095-a873-0fcc17f9408f)
+![image](https://github.com/user-attachments/assets/080be53d-e79f-422f-bd3c-5fd02f095004)
